@@ -11,7 +11,7 @@
 ![](https://files.catbox.moe/67ud24.webp)
 ![](https://files.catbox.moe/7tlqsp.webp)
 
-hello!! my name is sam or ace, both are fine. i am sixteen and my pronouns are he/she. i like animals, mushrooms, drawing, art and reading. i dislike insects, arguing, loud noises and winter. i hope we can be friends, or at least get along well!!
+i am a little stupid socially
 
 ![](https://files.catbox.moe/ev3xr4.gif)
 ![](https://files.catbox.moe/4m5qe4.gif)
